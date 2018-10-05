@@ -1,0 +1,2 @@
+# algoritma-tugas-1
+NAMA : GALIH PRASTOWO (5180411172)
